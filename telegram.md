@@ -7,6 +7,66 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 02:02
+---
+
+## mwarmonitor — post 9288
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال‌استریت ژورنال: شرکت آنتروپیک اخیراً به کاربران مدل قدرتمند هوش مصنوعی خود با نام «میثوس» اجازه داده است تهدیدهای امنیت سایبری را با دیگرانی که ممکن است با آسیب‌پذیری‌های مشابه روبه‌رو باشند، به اشتراک بگذارند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341908
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Former LAPD Detective Mark Fuhrman, who discovered the bloody glove in the O.J. Simpson murder case and was convicted of lying on the witness stand back in 1994, has died at the age of 74.
+</div>
+
+## FoxNewsTwitter — post 341907
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341907_1779143546.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+FOX NEWS REPORT: Three people are dead after a shooting at the Islamic Center of San Diego in what police are investigating as a hate crime. Meanwhile, President Trump says he called off a planned strike on Iran as ‘serious negotiations’ continue. @BillMelugin_ has the latest.
+</div>
+
+## FoxNewsTwitter — post 341906
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341906_1779143548.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“He made a mistake. It was a big mistake.”
+
+President Trump jokes about Mark Cuban previously backing Kamala Harris as the two appear together at a healthcare affordability event focused on lowering prescription drug costs.
+
+Trump says Cuban joined the effort because “this is something that really works,” adding that he plans to expand access to cheaper medications through major distribution networks including Amazon.
+
+“I have a lot of respect for Mark, frankly, and I always have.”
+</div>
+
+## FarsiVOA — post 218099
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218099_1779143550.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بحران اقتصادی در ایران دیگر فقط صدای مردم عادی را درنیاورده، حتی حامیان و مقام‌های جمهوری اسلامی نیز از گرانی، بیکاری و آشفتگی اقتصادی شکایت می‌کنند. بحرانی که بسیاری، ریشه آن را در سال‌ها سوءمدیریت و فساد ساختاری در جمهوری اسلامی می‌بینند
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 01:52
 ---
 
