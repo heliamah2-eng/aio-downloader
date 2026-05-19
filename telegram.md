@@ -7,6 +7,78 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 11:42
+---
+
+## WithYashar — post 11632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمی پیش صدای انفجار و ستون دود در پادگان موشکی ۱۵ خرداد اصفهان @withyashar
+</div>
+
+## WithYashar — post 11631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar part6
+</div>
+
+## DEJradio — post 4713
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4713_1779178347.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 “دارو خیلی گرون شده، بچه من جلوی چشمم داره پرپر می‌زنه، به‌خدا با حقوق کارگری نمی‌شه تهیه کرد، بیمه قبول نمی‌کنه، به کی بگیم؟
+
+پیام دریافتی
+
+#تورم #دارو
+@DEJradio
+</div>
+
+## DEJradio — post 4712
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4712_1779178347.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 در جیرفت کرمان، مردم برای تنها ۲۰ لیتر بنزین از شب تا صبح در صف می‌مانند...
+
+#کرمان #بنزین
+@DEJradio
+</div>
+
+## FarsiVOA — post 218118
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺فایننشال تایمز: شی به ترامپ گفته پوتین ممکن است از تهاجم به اوکراین «پشیمان» شود
+
+▪️فایننشال تایمز به نقل از منابع آگاه گزارش داد که رئیس‌جمهور چین در جریان گفت‌وگوهای خود با دونالد ترامپ رئیس‌جمهور آمریکا در پکن در هفته گذشته، گفته که ولادیمیر پوتین ممکن است در نهایت از تهاجم خود به اوکراین «پشیمان» شود.
+
+▪️فایننشال تایمز نوشت که اظهارات شی درباره تصمیم پوتین برای آغاز تهاجم تمام‌عیار به کشور همسایه‌اش در سال ۲۰۲۲، به نظر می‌رسد فراتر از مواضع پیشین او بوده است. بر اساس این گزارش، شی تاکنون چنین برداشتی‌ از مواضع پوتین در جنگ اوکراین ارائه نکرده بود.
+
+▪️هنوز مقامات آمریکا، چین و روسیه رسماً به این گزارش فایننشال تایمز واکنشی نشان نداده‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8151591.html
+</div>
+
+## alonews — post 121023
+
+<div align="center">
+  <a href="telegram/content/alonews_121023_1779178349.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت شناورها در تنگه هرمز؛ هم‌اکنون
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 11:32
 ---
 
