@@ -20,7 +20,7 @@ jobs:
         env:
           TUNNEL_AUTH_KEY: ${{ secrets.TUNNEL_AUTH_KEY }}
         run: |
-          python3 .github/script/python_exit_node.py --host 127.0.0.1 --port 8181 &
+          python3 .github/script/python-exit-node.py --host 127.0.0.1 --port 8181 &
           sleep 2
 
       - name: Expose
