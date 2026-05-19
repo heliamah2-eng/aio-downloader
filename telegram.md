@@ -7,6 +7,279 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 15:02
+---
+
+## VahidOOnLine — post 240945
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240945_1779190361.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«صدای فاطمه سپهری باشیم»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240944
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240944_1779190363.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌ رسانه‌های حکومتی حمید خانی، پاسدار بازنشسته اهل شهرستان بروجن، در جریان عملیات خنثی‌سازی بمب‌های عمل‌نکرده باقی‌مانده از جنگ اخیر در تهران کشته شد. بر اساس گزارش‌ها، او به‌صورت داوطلبانه در بخش مهندسی قرارگاه خاتم‌الانبیا فعالیت می‌کرد.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11646
+
+<div align="center">
+  <a href="https://t.me/withyashar/11646" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کتاب ممنوعه «در پشت پرده های انقلاب»، اعترافات «جعفر شفیع زاده» فرمانده پیشین واحد مخصوص انقلاب اسلامی ایران و محافظ آیت الله خمینی در نوفل لوشاتو و تهران.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341920
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341920_1779190365.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @foxnewspolitics: FIRST ON FOX: Democratic Maine Senate candidate Graham Platner's deleted Reddit account reveals graphic posts about masturbating in portable toilets and praising explicit military restroom graffiti — the latest in a growing trail of vulgar comments that could define his race against Susan Collins.
+
+Platner has dismissed past controversies as 'joking' and 's***posting,' but GOP strategists say the pattern raises fundamental questions about his judgment and fitness for office.
+
+He became Democrats' presumptive nominee after Gov. Janet Mills dropped out last month.
+</div>
+
+## DEJradio — post 4730
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یک نمایندۀ مجلس گفت مذاکره نتیجه نمی‌دهد
+
+اسماعیل کوثری، نمایندۀ مجلس شورای اسلامی و از فرماندهان پیشین سپاه پاسداران، گفت جمهوری اسلامی «قطعا و یقینا» از طریق مذاکره به نتیجه نمی‌رسد.
+او همچنین مدعی شد دونالد ترامپ جنگ را باخته و تلاش می‌کند خود را پیروز نشان دهد.
+کوثری گفت تلاش‌ برای دستیابی به نتیجه «شدنی نیست».
+
+#مذاکرات #سپاه_تروریستی_پاسداران
+
+@DEJradio
+</div>
+
+## DEJradio — post 4729
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نیویورک تایمز: جمهوری اسلامی الگوهای پروازی جنگنده‌های آمریکا را بررسی کرده است
+
+نشریۀ نیویورک تایمز، به نقل از مقام‌های آمریکایی گزارش داد فرماندهان جمهوری اسلامی، احتمالا با کمک روسیه، الگوهای پروازی جنگنده‌ها و بمب‌افکن‌های آمریکایی را بررسی کرده‌اند.
+به نوشتۀ این روزنامۀ آمریکایی، سرنگونی یک جنگندۀ اف-۱۵ئی و اصابت آتش زمینی به یک جنگنده اف-۳۵ سبب شده مقام‌های جمهوری اسلامی فکر کنند تاکتیک‌های پروازی آمریکا قابل پیش‌بینی است.
+بنا بر این گزارش، جمهوری اسلامی بخش زیادی از تسلیحات باقی‌ماندۀ خود را جابه‌جا کرده و تلاش دارد توانایی مقاومت در برابر آمریکا را به نیروهایش القا کند.
+نیویورک تایمز به نقل از یک مقام نظامی آمریکا نوشت جمهوری اسلامی در طول آتش‌بس یک‌ماهه، ده‌ها پایگاه موشکی آسیب‌دیده را از زیر آوار خارج کرده است.
+
+#جنگ #روسیه #جمهوری_اسلامی
+@DEJradio
+</div>
+
+## DEJradio — post 4728
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ فرماندۀ پیشین سپاه گفت آمریکا می‌خواهد جمهوری اسلامی تلسیم شود
+
+محسن رضایی، فرماندۀ پیشین سپاه پاسداران در واکنش به تعویق حمله به جمهوری اسلامی نوشت آمریکا با تعیین و لغو ضرب‌الاجل نظامی تلاش داردجمهوری اسلامی را تسلیم کند.
+مشاور مجتبی خامنه‌ای، در شبکۀ اجتماعی اکس مدعی شد «مشت آهنین نیروهای مسلح» آمریکا را به عقب‌نشینی وادار می‌کند.
+
+#مذاکرات #تسلیم
+@DEJradio
+</div>
+
+## ManotoTV — post 105631
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105631_1779190365.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«صدای فاطمه سپهری باشیم»
+</div>
+
+## ManotoTV — post 105630
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105630_1779190367.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌ رسانه‌های حکومتی حمید خانی، پاسدار بازنشسته اهل شهرستان بروجن، در جریان عملیات خنثی‌سازی بمب‌های عمل‌نکرده باقی‌مانده از جنگ اخیر در تهران کشته شد. بر اساس گزارش‌ها، او به‌صورت داوطلبانه در بخش مهندسی قرارگاه خاتم‌الانبیا فعالیت می‌کرد.
+</div>
+
+## FarsiVOA — post 218129
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218129_1779190368.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺حضور قطر و امارات در نشست مالی گروه هفت برای بررسی بحران خلیج فارس
+
+▪️رویترز گزارش داد مقام‌هایی از قطر و امارات متحده عربی در نشست وزیران دارایی گروه هفت در پاریس حضور یافتند تا درباره بحران خلیج فارس و پیامدهای اقتصادی جنگ با جمهوری اسلامی گفت‌وگو کنند.
+
+▪️وزیر دارایی فرانسه در این باره گفت حضور مقام‌های قطر و امارات بخشی از تلاش گروه هفت برای بررسی پیامدهای جنگ در خاورمیانه و کمک به کشورهایی است که بیشترین آسیب را از بحران دیده‌اند.
+
+▪️دعوت از کشورهای غیرعضو به نشست‌های مالی گروه هفت سابقه دارد؛ اما حضور قطر و امارات در پاریس از آن جهت مهم است که دو کشور مستقیماً در معرض پیامدهای بحران خلیج فارس، اختلال در تنگه هرمز، حملات پهپادی و فشار بر بازار انرژی قرار گرفته‌اند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8151595.html
+</div>
+
+## DW_Farsi — post 124868
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124868_1779190369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 کاریکاتور هفته:
+
+پخش برنامه‌هایی از صداوسیما که در آنها مجریان سلاح گرم در دست می‌گیرند یا کار با آنها را به مخاطبان آموزش می‌دهند علاوه بر تأکید بر فضای نظامی و نظامی‌گری، آن‌هم در زمان آتش‌بس که انتظار ترجیح مسیر دیپلماسی به نفع مردم می‌رود، به باور بسیاری از شهروندان و کارشناسان سیاسی با هدف تهدید و ارعاب مردم است؛ مردمی که دی ماه گذشته در جمعیتی انبوه و میلیونی با حضور در خیابانهای کشور عبور از رژیم را درخواست کردند اما با رگبار گلوله و کشتاری جمعی روبرو شدند.
+ 
+به نظر می‌رسد با توجه به وخیم‌تر شدن بحران اقتصادی، عدم تغییر سیاست‌های عامل این بحران همراه با سرکوب بیرحمانه و موج اعدام‌ها، حکومت تنها راه مقابله با آتش خشم و عصبانیت عمومی را تهدید مردم داخل خانه‌هایشان دیده است.
+ 
+این موضوع دستمایه مانا نیستانی در طراحی کاریکاتور هفته برای دویچه وله فارسی بوده است.
+
+@dw_farsi
+</div>
+
+## RadioFarda — post 157345
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157345_1779190370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸قطر روز سه‌شنبه ۲۹ اردیبهشت اعلام کرد که مذاکرات میان آمریکا و ایران برای رسیدن به توافق به زمان بیشتری نیاز دارد.
+
+🔸ماجد الانصاری، سخنگوی وزارت خارجه قطر، در یک نشست خبری گفت: «ما از تلاش دیپلماتیک پاکستان که جدیت خود را در گردهم آوردن طرف‌ها و یافتن راه‌حل نشان داده حمایت می‌کنیم و معتقدیم این روند به زمان بیشتری نیاز دارد».
+
+🔸این اظهارات یک روز پس از آن مطرح شد که دونالد ترامپ، رئیس‌جمهور آمریکا، گفت حمله روز سه‌شنبه به ایران را برای دادن فرصت به این روند به تعویق انداخته است.
+
+🔸ایران و ایالات متحده از زمان آتش‌بس شکننده میان دو کشور در ۱۹ فروردین امسال، درگیر یک دور مذاکره مستقیم و همچنین تبادل پیام‌هایی از طریق پاکستان بوده‌اند تا به توافقی برای پایان جنگ دست یابند.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20382
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 معاون امنیتی استان خوزستان :
+
+امروز داشتیم پدافند هامونو تست میکردیم که به اشتباه یکی از پرتابه ها خورد به یک ساختمون مسکونی و چندین نفر زخمی شدن.
+
+@IranianMinds
+</div>
+
+## manototv — post 105632
+
+<div align="center">
+  <a href="telegram/content/manototv_105632_1779190371.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«صدای رشید مظاهری باشید»
+</div>
+
+## manototv — post 105631
+
+<div align="center">
+  <a href="telegram/content/manototv_105631_1779190372.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«صدای فاطمه سپهری باشیم»
+</div>
+
+## manototv — post 105630
+
+<div align="center">
+  <a href="telegram/content/manototv_105630_1779190374.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌ رسانه‌های حکومتی حمید خانی، پاسدار بازنشسته اهل شهرستان بروجن، در جریان عملیات خنثی‌سازی بمب‌های عمل‌نکرده باقی‌مانده از جنگ اخیر در تهران کشته شد. بر اساس گزارش‌ها، او به‌صورت داوطلبانه در بخش مهندسی قرارگاه خاتم‌الانبیا فعالیت می‌کرد.
+</div>
+
+## alonews — post 121065
+
+<div align="center">
+  <a href="telegram/content/alonews_121065_1779190374.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان عفو بین‌الملل:
+تعداد اعدام‌ها تو جهان تو سال 2025 به بالاترین سطح ثبت‌شده تو 44 سال گذشته رسیده و اعدام‌های انجام شده به‌دست جمهوری اسلامی، اصلی‌ترین عامل این افزایش بوده.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121064
+
+<div align="center">
+  <a href="telegram/content/alonews_121064_1779190375.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وال‌استریت ژورنال: چند مقام خلیج فارس از برخی کشورهایی که ترامپ به آن‌ها اشاره کرده بود گفتند از طرح قریب‌الوقوعی که او درباره حمله به ایران توصیف کرده بود، اطلاعی نداشتند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121063
+
+<div align="center">
+  <a href="telegram/content/alonews_121063_1779190375.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حیاتی، معاون امنیتی خوزستان:
+
+
+🔴امروز تو اندیمشک داشتیم سامانه پدافند هوایی رو تست می‌کردیم که یه پرتابه‌اش به یه ساختمون مسکونی خورد و 4 نفر زخمی شدن.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121062
+
+<div align="center">
+  <a href="telegram/content/alonews_121062_1779190375.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دختر قاسم سلیمانی:
+
+
+🔴گلشیفته فراهانی پدرم رو‌ به عنوان قهرمان ملی بسیار دوست داشت و صحبتی هم تلفنی با پدرم داشت(که مشکلی که داشت پدرم برایش حل کرد)
+
+
+🤔ظاهراً بهزاد فراهانی معروف به بهزاد بیضه هم علاقه زیادی به قاسم سلیمانی داشته
+
+
+✅@AloNews
+</div>
+
+## alonews — post 121061
+
+<div align="center">
+  <a href="telegram/content/alonews_121061_1779190377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ریمیکس «تو رستم تهمتنی» این روزا تبدیل به وایرال ترین کلیپ اینستا شده
+
+[@AloTweet]
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 14:52
 ---
 
