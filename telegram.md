@@ -7,6 +7,91 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 03:12
+---
+
+## pm_afshaa — post 91138
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91138_1779320555.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت پیت هگست، وزیر جنگ آمریکا درباره ایران: قفل شده و آماده شلیک
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75588
+
+<div align="center">
+  <a href="telegram/content/VahidOnline_75588_1779320556.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+'من وطن‌فروش نیستم... زنده باد جمهوری اسلامی... تا آخر کنار ولایت می‌مانیم... این پرچم با طوفان نمی‌افتد... سقوط این کشور را به گور خواهند برد... عزت این ملت معامله‌شدنی نیست راه مقاومت ادامه دارد...'
+
+تبلیغ «وطن»دوستی در «کشور جمهوری اسلامی» با شهروندان وارداتی از 'عمان، سنگال، غنا، کنیا، بورکینافاسو، ساحل عاج، نیجریه، تانزانیا، مالی'
+
+📡 @VahidOnline
+</div>
+
+## IranianMinds — post 20473
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20473_1779320556.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴 کاخ سفید در پیامی در شبکه ایکس با انتشار تصویری از علی خامنه‌ای، نیکلاس مادورو، رائول کاسترو و ابو بلال المینوکی، نفر دوم داعش، نوشت: «عدالت اجرا خواهد شد.» بر روی عکس این افراد در این تصویر نوشته شده خامنه‌ای کشته شده، مادورو بازداشت شده، المینوکی کشته شده و کاسترو تحت تعقیب است
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20472
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20472_1779320557.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ #بدون_واریز ، ۵۰۰هزارتومان جایزه بگیر.
+
+
+💲همین حالا میتونی با عضویت پولتو بگیری و‌شرط ببندی 
+🤗
+
+
+🎉 500 هزارتومن بونوس رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+⌛ پشتیبانی 24 ساعته
+
+💰پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+
+☑️ کانال تلگرام: 
+
+➡️ @winro_io  
+
+
+🎁 هدیه خود را با ثبت نام در سایت دریافت کنید: 
+
+➡️ Winro.io
+A30
+سایت اصلی در روزهای آینده بازگشایی خواهد شد A
+🟢
+</div>
+
+## IranianMinds — post 20471
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20471_1779320557.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 03:02
 ---
 
