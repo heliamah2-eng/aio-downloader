@@ -7,6 +7,269 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 14:33
+---
+
+## VahidOOnLine — post 241124
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241124_1779274998.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه جمهوری‌اسلامی اعلام کرده با توجه به ریاست دوره‌ای چین بر شورای امنیت سازمان ملل و برنامه پکن برای برگزاری «نشست ویژه وزیران خارجه درباره صلح و امنیت بین‌المللی»، از عباس عراقچی، وزیر خارجه نظام اسلامی، برای حضور در این نشست در نیویورک دعوت شده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241123
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241123_1779274999.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کناره گیری محمدباقر قالیباف از ریاست هیئت‌ مذاکره کننده جمهوری‌اسلامی در مذاکرات با آمریکا،‌ از سوی رییس مرکز ارتباطات، رسانه و امور فرهنگی مجلس شورای اسلامی تکذیب شده است.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241122
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241122_1779275000.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی اردن گزارش داد که نیروهای مسلح این کشور صبح امروز یک پهپاد ناشناس را که وارد حریم هوایی اردن شده بود، سرنگون کردند.
+ارتش اردن این پهپاد را در استان جرش، در منطقه بلیلا در شمال کشور، هدف قرار داد. این حادثه تلفات جانی نداشت، اما خسارت‌های جزئی مادی بر جای گذاشت.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241121
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241121_1779275000.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رسمی اردن گزارش داد که نیروهای مسلح این کشور صبح امروز یک پهپاد ناشناس را که وارد حریم هوایی اردن شده بود، سرنگون کردند.
+ارتش اردن این پهپاد را در استان جرش، در منطقه بلیلا در شمال کشور، هدف قرار داد. این حادثه تلفات جانی نداشت، اما خسارت‌های جزئی مادی بر جای گذاشت.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11742
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من رفیق نیمه راه نیستم! مرسی از پیغام های زیباتون 😃 تازه خلیلی هم خوش مسافرتم اینو همه دوستام میدونن ، شما هم دیگه متوجه شدید 🤣🙌🏾
+</div>
+
+## FoxNewsTwitter — post 341977
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_341977_1779275001.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Trump-backed Republicans rack up major primary victories across the country.
+
+Nearly 30 candidates endorsed by President Trump secure wins in congressional and statewide races across Kentucky, Georgia, Pennsylvania, and Alabama, including high-profile Senate and governor contests.
+
+Trump-backed Ed Gallrein defeated incumbent Kentucky GOP Rep. Thomas Massie in what turned out to be the most expensive House primary in U.S. history.
+
+Also in Kentucky, Congressman Andy Barr won the GOP Senate primary and is seen as the heavy favorite to replace outgoing Senator Mitch McConnell.
+
+Alabama Senator Tommy Tuberville had an easy win securing the GOP gubernatorial nomination in his state.
+</div>
+
+## pm_afshaa — post 91097
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴قوه قضائیه: رشید مظاهری، بازیکن سابق فوتبال، هنگام خروج غیرقانونی از کشور دستگیر شده.
+
+این فرد قصد داشته با تغییر چهره و پول دادن به ماموران مرزبانی، از مرزهای غربی به صورت غیرقانونی از کشور فرار کنه، ولی موقع خروجش دستگیر شده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## ManotoTV — post 105679
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105679_1779275002.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه جمهوری‌اسلامی اعلام کرده با توجه به ریاست دوره‌ای چین بر شورای امنیت سازمان ملل و برنامه پکن برای برگزاری «نشست ویژه وزیران خارجه درباره صلح و امنیت بین‌المللی»، از عباس عراقچی، وزیر خارجه نظام اسلامی، برای حضور در این نشست در نیویورک دعوت شده است.
+</div>
+
+## ManotoTV — post 105678
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105678_1779275003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کناره گیری محمدباقر قالیباف از ریاست هیئت‌ مذاکره کننده جمهوری‌اسلامی در مذاکرات با آمریکا،‌ از سوی رییس مرکز ارتباطات، رسانه و امور فرهنگی مجلس شورای اسلامی تکذیب شده است.
+</div>
+
+## BBCPersian — post 281598
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻وزیر دفاع فرانسه: از وجود مین در تنگه هرمز مطمئن نیستم
+
+🔻کاترین وترین، وزیر دفاع فرانسه، پس از گزارش رسانه‌های آمریکایی مبنی بر شناسایی حداقل ۱۰ مین در حوالی تنگه هرمز، گفت که فرانسه در حال حاضر هیچ اطمینانی ندارد که در تنگه هرمز مین کار گذاشته شده باشد.
+
+او به رادیو فرانس اینفو گفت: «در حال حاضر، من هیچ اطمینانی در این مورد ندارم، اما در هر صورت، ما در حال آماده شدن برای لزوم پاکسازی احتمالی مین‌ها هستیم.»
+
+او گفت که کشتی‌های مین‌روب به عنوان بخشی از یک ماموریت احتمالی آینده به رهبری فرانسه و بریتانیا به منطقه اعزام شده‌اند و فرانسه یکی از این کشتی‌ها را در پایگاه خود در جیبوتی دارد.
+
+https://bbc.in/4v0II7P
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389801
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏یک بسته کیسه فریزر رولی
+یک میلیون و صد و هشتاد وپنج !
+۲۹ اردیبهشت ۱۴۰۵
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389800
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389800" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📱 اپلیکیشن اندروید بدون فیلتر ریتزوبت
+
+➖➖➖➖➖
+
+🔹 ثبت نام آسان 
+✅
+🔹 رابط کاربری بسیار راحت و سریع 
+✅
+🔹 درگاه پرداخت کارت به کارت 
+✅
+🔹 درگاه پرداخت دلاری سریع 
+✅
+🔹 بونوس ۱۰۰ درصدی اولین واریز 
+✅
+🔹 بونوس ۱۰۰ درصدی واریز یکشنبه ها 
+✅
+
+➖➖➖➖➖
+🌐 https://RitzoBet.com
+
+⚡️ @RitzoBet_ir
+</div>
+
+## Dirty_Kids — post 389799
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389799_1779275004.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚠️ برای #شرطبندی های فوتبال از سایت معتبر و بین المللی استفاده کنید ✅
+
+
+🇩🇪 فرایبورگ 
+🔢
+🔢 
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 استون ویلا
+
+سایت #ریتزوبت ، چهار سال هستش داخل ایران فعالیت میکنه 
+✅
+
+لایسنس بین المللی داره ، روش های شارژ و برداشت متنوع داره و بونوس 100% ورزشی و کش بک های جذاب
+💎
+
+
+⏪ اپلیکیشن بدون فیلتر ریتزوبت 
+📱
+⏩
+R30
+
+✅ لینک بدون‌ فیلتر ریتزوبت
+🤣
+
+🆔 @RitzoBet_ir 
+🇮🇷
+</div>
+
+## Dirty_Kids — post 389798
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389798_1779275005.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شبکه آمریکایی الحره: میان نیروهای ارتش و سپاه توی ایران درگیری داخلی و مسلحانه رخ داده.
+
+داستان از اینجا شروع میشه که سازمان اطلاعات سپاه، افسران و نیروهای ارتش رو از پایگاه های مشترک نظامی اخراج و اونارو به خیانت و انتقال اطلاعات به اسرائیل و آمریکا متهم کرد!
+این اتهامات شامل لو دادن محل استقرار موشک‌های بالستیک و پهپادهای حکومت بوده.
+حالا سپاه و ارتش سر این داستان باهم به مشکل خوردن و درگیر شدن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389797
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389797_1779275005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فیلم وایرال شده از آمریکا که حامیان فلسطین و خامنه‌ای تجمع کردن و یه ایرانی میره اون وسط و یه تنه همشونو میگاد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105679
+
+<div align="center">
+  <a href="telegram/content/manototv_105679_1779275007.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه جمهوری‌اسلامی اعلام کرده با توجه به ریاست دوره‌ای چین بر شورای امنیت سازمان ملل و برنامه پکن برای برگزاری «نشست ویژه وزیران خارجه درباره صلح و امنیت بین‌المللی»، از عباس عراقچی، وزیر خارجه نظام اسلامی، برای حضور در این نشست در نیویورک دعوت شده است.
+</div>
+
+## manototv — post 105678
+
+<div align="center">
+  <a href="telegram/content/manototv_105678_1779275008.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کناره گیری محمدباقر قالیباف از ریاست هیئت‌ مذاکره کننده جمهوری‌اسلامی در مذاکرات با آمریکا،‌ از سوی رییس مرکز ارتباطات، رسانه و امور فرهنگی مجلس شورای اسلامی تکذیب شده است.
+</div>
+
+## alonews — post 121271
+
+<div align="center">
+  <a href="telegram/content/alonews_121271_1779275009.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کنست به انحلال خود و برگزاری زودهنگام انتخابات رای داد
+
+
+🔴کنست در جلسه مقدماتی خود با اکثریت ۱۱۰ عضو و بدون هیچ مخالفتی، به لایحه انحلال خود و جلو انداختن تاریخ انتخابات رأی داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 14:22
 ---
 
