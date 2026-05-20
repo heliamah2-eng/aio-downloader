@@ -7,6 +7,109 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 10:23
+---
+
+## WithYashar — post 11720
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11720_1779260001.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما در ایران کار فوق‌العاده‌ای انجام دادیم؛ فکر میکنم خیلی زود این کار تمام بشه و آنها سلاح هسته‌ای نخواهند داشت؛ امیدوارم این کار رو به روشی بسیار خوب انجام بدیم.
+@withyashar
+</div>
+
+## IranIntlTV — post 338040
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338040_1779260003.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شی جین‌پینگ، رییس‌جمهور چین، در دیدار با ولادیمیر پوتین، رییس‌جمهوری روسیه، تاکید کرد پایان جنگ ایران «ضرورتی فوق‌العاده» است. شی همچنین گفت پایان جنگ می‌تواند به ثبات در بازار انرژی کمک کند.
+
+توماج طاهباز، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338039
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338039_1779260005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دادگاهی در ایالت کالیفرنیا دعوای ایلان ماسک علیه اوپن‌ای‌آی را رد کرد. هیئت منصفه این دادگاه اعلام کرد ماسک شکایت را دیر مطرح کرده و مهلت قانونی سه‌ ساله برای ثبت آن به پایان رسیده است.
+
+گزارش حمید رشید، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## BBCPersian — post 281579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نفتکش کره‌ جنوبی «با همکاری مقام‌های ایرانی» در حال عبور از تنگه هرمز است
+
+🔻چو هیون، وزیر امور خارجه کره جنوبی، روز چهارشنبه گفت که یک نفتکش کره‌ای حامل نفت خام با همکاری مقام‌های ایرانی در حال عبور از تنگه هرمز است.
+
+او در اظهارات خود در جلسه استماع پارلمان در سئول، جزئیات بیشتری در مورد این کشتی ارائه نکرد.
+
+داده‌های کشتیرانی شرکت ال‌اس‌ای‌جی روز چهارشنبه نشان می‌دهد که ابرنفتکش یونیورسال وینر با پرچم کره جنوبی و حامل ۲ میلیون بشکه نفت خام کویت، در حال خروج از تنگه هرمز است.
+
+عبور این نفتکش کره‌ای با همکاری مقام‌های ایران پس از آن صورت می‌گیرد که حدود دو هفته پیش (۱۴ اردیبهشت / ۴ مه) کشتی باری کره‌ای «اچ‌ام‌ام نامو» در نزدیکی تنگه هرمز هدف «دو پهپاد ناشناس» قرار گرفت.
+https://bbc.in/3RwznWP
+@BBCPersian
+</div>
+
+## alonews — post 121212
+
+<div align="center">
+  <a href="telegram/content/alonews_121212_1779260007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سایت عبری والا: مجروح شدن فرمانده تیپ زرهی ۴۰۱ و تعدادی از سربازان اسرائیلی در جنوب لبنان در پی حملات پهپادی حزب‌الله.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121211
+
+<div align="center">
+  <a href="telegram/content/alonews_121211_1779260007.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هاآرتص به نقل از منابع اسرائیلی: از اظهارات ترامپ که گفته بود تنها چند ساعت با حمله به ایران فاصله داشته، شگفت‌زده شدیم؛ انتظار داشتیم که این حمله به طور مستقیم و گسترده با اسرائیل هماهنگ شه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121210
+
+<div align="center">
+  <a href="telegram/content/alonews_121210_1779260008.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان: هیچ کشوری تسلیم نمی‌شود، مگر اینکه از درون دچار اختلافات شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121209
+
+<div align="center">
+  <a href="telegram/content/alonews_121209_1779260008.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه‌های روسیه گزارش دادند استیو ویتکاف، نماینده ویژه ترامپ به زودی به روسیه سفر خواهد کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 10:13
 ---
 
