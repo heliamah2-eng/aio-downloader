@@ -7,6 +7,274 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 13:43
+---
+
+## VahidOOnLine — post 241304
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241304_1779358389.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویری که صفحه «اسرائیل به فارسی» روز پنجشنبه ۳۱ اردیبهشت در شبکه‌های اجتماعی منتشر کرده نشان می‌دهد، پرچم ملی شیروخورشید نشان ایران در کنار پرچم سایر کشورها در یکی از خیابان‌های شهر اشدود اسرائیل به اهتزاز درآمده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11826
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همکنون زلزله در بندر عباس
+@withyashar
+مرحله بعدی زامبی و گودزیلا است
+</div>
+
+## pm_afshaa — post 91149
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91149_1779358392.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:درخشش پرچم شیر‌ و خورشید در کنار پرچم کشورهای دیگر در شهر اشدود در اسرائیل.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91148
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴3 انفجار پیاپی در بندر عباس
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91147
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91147_1779358395.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨اشتراک استارز ⭐️ فیلترشکن ایران وی پی ان
+تخفیف ها تا ساعت ۱۲ امشب هستن و هیچ وقت دیگر بر نمیگردن❌
+
+تعرفه های باور نکردنی🔮
+
+سرورا بدون ضریب هستن و ساب دارن😎🔋
+
+1 gig= 230t🚀
+
+3 gig= 670t 🚀
+
+5 gig= 1050t🚀
+
+7 gig = 1550t 🚀
+
+10 gig= 2100t 🚀
+
+قبل خرید میتونید تست بگیرید 🛜
+بهترین و ارزون ترین سرور ایران دست ماست
+
+🚨تمامی سرور ها کاربر نامحدود هستن و تاریخ انقضا ندارن✅
+
+جهت خرید به ایدی زیر پیام بدین 👇
+
+@IRAN_VPNADMIN
+
+کانال. و رضایت مشتری ها👇
+
+https://t.me/IRAN_VPNON
+</div>
+
+## IranIntlTV — post 338220
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338220_1779358396.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اسرائیل هیوم گزارش داد نشست کاخ سفید درباره پرونده جمهوری اسلامی با اختلاف‌نظر میان مقام‌های ارشد آمریکا همراه بوده است. به‌گفته این روزنامه، دونالد ترامپ بر ادامه مذاکرات تاکید کرده است. در مقابل، مارکو روبیو، وزیر امور خارجه، و پیت هگست، وزیر جنگ، معتقدند بدون تهدید به حمله و افزایش فشار اقتصادی، از تهران نمی‌شود امتیاز گرفت.
+جزییات بیشتر با حسین آقایی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Shin_Persian — post 6120
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 21 May 2026 10:02:55 UTC
+
+3 blasts were just heard in Qeshm island.
+(Highly likely EOD)
+Hormozgan Province, #Iran
+
+فارسی
+
+۳ انفجار دقایقی پیش در جزیره قشم شنیده شد.
+(احتمال زیاد خنثی‌سازی مهمات - EOD)
+استان هرمزگان، #Iran_
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14573
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14573_1779358398.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ ژاپن به ساخت هواپیمای مافوق صوت خود نزدیک شده است. آژانس فضایی ژاپن (JAXA) به همراه دانشگاه‌های واسدا، توکیو و کیئو آزمایش‌های زمینی موتور رمجت (Ramjet) برای وسیله پروازی مافوق صوتی که قادر به پرواز با سرعتی پنج برابر سرعت صوت است را انجام دادند.
+
+آزمایش‌ها در مرکز فضایی کاکودا انجام شد. در تونل باد، دانشمندان پرواز مافوق صوت را شبیه‌سازی کردند و عملکرد موتور رمجت، سیستم‌های کنترل و محافظ حرارتی هواپیما را بررسی کردند. در سرعت ۵ ماخ (تقریباً حدود ۶۱۰۰ کیلومتر بر ساعت) دمای هوای اطراف وسیله می‌تواند به حدود ۱۰۰۰ درجه سانتی‌گراد برسد، اما سیستم محافظ حرارتی توانست شرایط تقریباً نرمالی را برای عملکرد الکترونیک داخل سازه حفظ کند.
+
+این پروژه به منظور ساخت یک سکوی آزمایشی مافوق صوت طراحی شده است. مرحله بعدی باید آزمایش‌های پروازی کامل با نصب وسیله آزمایشی روی یک راکت ژئوفیزیکی باشد. هدف اصلی برنامه ایجاد فناوری‌هایی برای هواپیماها و فضاپیماهای مافوق صوت آینده است.
+
+در JAXA معتقدند که در آینده این فناوری‌ها امکان کاهش زمان پرواز بین ژاپن و آمریکا از طریق اقیانوس آرام را به حدود دو ساعت فراهم می‌کنند. علاوه بر این، تحقیقات می‌توانند پایه‌ای برای ساخت وسایلی باشند که قادر به صعود تا ارتفاع حدود ۱۰۰ کیلومتر هستند.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14572
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14572_1779358399.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢سخنگوی وزارت خارجه روسیه: مسکو آماده کمک به اجرای توافقات احتمالی میان ایران و آمریکا است
+
+💢ماریا زاخارووا، سخنگوی وزارت امور خارجه روسیه گفت، روسیه کاملاً آماده است کمک‌های لازم را به تهران و واشنگتن برای اجرای تصمیماتی که ممکن است در جریان مذاکرات میان آن‌ها حاصل شود، ارائه دهد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20484
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20484_1779358400.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکانت اسرائیل به فارسی:
+
+درخشش پرچم شیر‌ و خورشید در کنار پرچم کشورهای دیگر در شهر اشدود در اسرائیل.
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 389865
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏این دوس‌دختر سابقم هردفعه به یه بهانه‌ای سعی میکنه با من ارتباط برقرار کنه؛ یه بار زنگ میزنه میگه وسایلمو بفرست، یه بار میگه انقد ریلزای کسشر نفرس، یه بار میگه اون صد میلیون که ازم قرض گرفتی رو کی پس میدی؟ نمیدونم کی میخواد ازم مووآن کنه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389864
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389864_1779358402.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نه رشیدپور بی‌شرف، بازار اعتصاب كرد، پهلوى رو صدا زد، پهلوى براى اولين بار فراخوان داد، رژيم،ايرانی كش جمهوری اسلامی، مردم رو قتل عام كرد.
+اصن بر فرض مردم گول خوردن، شما چرا ۵۰٫۰۰۰ نفر رو کشتید بیشرفا؟؟؟
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389863
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389863_1779358404.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه فقط کافیه بادبان ها رو بکشی
+
+
+⚫️100 هزار تومان تخفیف خرید اول 
+🎁
+
+⚫️پایین ترین قیمت گیگی 180 هزار تومان
+🌐 
+
+⚫️پورسانت %10 دائمی برای هر معرفی
+💼
+
+با بادبان، میتونی یه اتصال سریع، پایدار و امن
+همراه با پشتیبانی ۲۴ ساعته داشته باشی
+🚀
+
+
+🛒کد تخفیف: badban4k
+
+بادبان راهتو باز می‌کنه
+⛵️
+R31
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## Dirty_Kids — post 389862
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389862_1779358405.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 شما ببین محمدرضا شاه کی بود که بعد از ۵۰ سال حتی طرفدارای جمهوری اسلامی ازش تعریف و شاه خطابش میکنن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121513
+
+<div align="center">
+  <a href="telegram/content/alonews_121513_1779358406.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری آلمان: کمیسیون اروپا به دلیل جنگ علیه ایران، پیش‌بینی خود از رشد اقتصادی اتحادیه اروپا در سال ۲۰۲۶ را کاهش داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121512
+
+<div align="center">
+  <img src="telegram/content/alonews_121512_1779358407.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴غیرفعال شدن تراست ولت و فریز تتر برای ایرانیان !
+
+بعداجرایی شدن تحریم ها جدید امریکا و بستن حسابای بانکی حال نوبت شناسایی و غیرفعال کردن ولت های ایرانی هست و طبق اعلام مقامات امریکایی ، این کار برای جلوگیری از پولشویی دولت ایران انجام میشود و بیش از ۱ میلیون ولت شناسایی شده است که به زودی مسدود خواهند شد
+نکات مهم برای ایمن نگه داشتن دارای های شما تو کانال قرار دادیم حتما رعایت کنید
+
+آموزش رفع مشکل
+
+https://t.me/arrad_group/2450
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 13:32
 ---
 
