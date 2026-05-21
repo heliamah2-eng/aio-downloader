@@ -7,6 +7,156 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 15:52
+---
+
+## mwarmonitor — post 9403
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📊 بر اساس آخرین نظرسنجی Fox News، حدود ۶۵٪ از رأی‌دهندگان می‌گویند که آمریکا در جنگ با ایران در حال پیروزی است.
+
+🔸این در حالی است که وزارت خارجه ایران در حال بررسی جدیدترین پیشنهاد صلح آمریکا است و هم‌زمان میانجی‌های پاکستانی برای پیشبرد یک توافق به تهران سفر کرده‌اند.
+
+🔹در حالی که دولت آمریکا نشانه‌ای از کاهش تمرکز بر اقدامات نظامی در خاورمیانه نشان نمی‌دهد، آمریکایی‌ها به‌طور فزاینده‌ای نسبت به قیمت بنزین و هزینه کلی زندگی ابراز نگرانی می‌کنند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342036
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342036_1779366160.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: 65% of voters say the U.S. is winning the war in Iran, according to the latest Fox News poll.
+
+This comes as Iran’s foreign ministry is reviewing the most recent U.S. peace proposal while Pakistani mediators visit Tehran to push for a deal.
+
+While the administration shows no signs of slowing down its focus on military action in the Middle East, Americans are growing increasingly worried about gas prices and the overall cost of living.
+</div>
+
+## DEJradio — post 4819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رویترز: مجتبی خامنه‌ای با انتقال ذخایر اورانیوم از ایران مخالفت کرد
+
+خبرگزاری رویترز به نقل از «منابع آگاه در جمهوری اسلامی» ادعا کرد مجتبی خامنه‌ای دستور داد ذخایر اورانیوم غنی‌شده از ایران خارج نشود.
+به گزارش رویترز، این تصمیم یکی از اصلی‌ترین خواسته‌های آمریکا و اسرائیل در مذاکرات را با مانع روبه‌رو کرده است.
+منابع جمهوری اسلامی به رویترز گفتند تهران نگران است آتش‌بس کنونی فرصتی برای تجدید قوای آمریکا و اسرائیل و مقدمۀ حملات تازه باشد.
+رویترز همچنین از بررسی گزینه‌هایی مانند رقیق‌سازی ذخایر اورانیوم زیر نظر آژانس بین‌المللی انرژی اتمی خبر داد.
+منابع دژ می‌گویند مجتبی خامنه‌ای قدرت تصمیم‌گیری ندارد و دستوراتی که به نقل از او اعلام می‌شود، در یکی از هسته‌های سپاه تنظیم می‌شود.
+
+#موشتبا #غنی‌سازی #اورانیوم
+@DEJradio
+</div>
+
+## IranIntlTV — post 338239
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338239_1779366160.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پارلمان اروپا در نشست خود قطعنامه‌ای را درباره وضعیت حقوق بشر در ایران تصویب کرد که در آن بر محکومیت سرکوب و اعدام معترضان، زندانیان سیاسی و اقلیت‌های مذهبی در ایران تاکید شده است.
+لی‌لی نیکفر، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 338238
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338238" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | پنجشنبه ۳۱ اردیبهشت
+@iranintlTV
+</div>
+
+## DW_Farsi — post 124958
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آمادگی ایلان ماسک برای بزرگ‌ترین عرضه اولیه سهام اسپیس‌ایکس
+
+ایلان ماسک از برنامه عرضه اولیه سهام شرکت اسپیس‌ایکس خبر داد؛ اقدامی که می‌تواند او را به نخستین تریلیونر جهان تبدیل کند. این اقدام در حالی انجام می‌شود که این شرکت فضایی سال گذشته با زیان میلیاردی مواجه بوده است.
+
+به گفته ایلان ماسک، میلیاردر دنیای فناوری، قرار است شرکت صنایع هوافضای اسپیس‌ایکس او بزرگ‌ترین عرضهٔ اولیه سهام (IPO) تاریخ را انجام دهد.
+
+عرضه اولیه سهام وقتی اتفاق می‌افتد که یک شرکت خصوصی برای نخستین بار سهام خود را برای خرید در بازار بورس عرضه می‌کند و به یک شرکت سهامی عام تبدیل می‌شود. هدف از این کار، جذب سرمایه کلان برای توسعه کسب‌وکار و افزایش اعتبار مالی است.
+
+ایلان ماسک این خبر را به صورت رسمی در روز چهارشنبه ۲۰ مه اعلام کرد.
+
+ارزش این شرکت با این کار می‌تواند به ۱.۷۵ تریلیون دلار برسد و از این نظر شرکت نفتی آرامکوی عربستان را به‌عنوان بزرگ‌ترین ارائه‌دهنده عرضه اولیه سهام تاریخ پشت سر بگذارد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14586
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢نیروهای جمهوری اسلامی برای محاکمه به دادگاه ارجاع شدند
+
+🔹دادستانی کل کویت امروز(پنج شنبه) ادعا کرد که چند متهم وابسته به جمهوری اسلامی به دادگاه ارجاع شده‌اند.
+
+الجزیره نوشت:
+
+🔹دادستانی کویت همچنین مدعی شده است که این افراد پس از ورود غیرقانونی به خاک کشور دستگیر شده بودند و در اختیار داشتن سلاح و تجهیزات ارتباطی با هدف هدف قرار دادن تأسیسات حیاتی و دولتی به آن‌ها نسبت داده شده است.
+
+🔹دادستانی کل کویت در بیانیه‌ای رسمی ادعا کرد که چند نفر از عناصر وابسته ایران پس از ورود غیرقانونی به خاک کشور و عبور از مرزهای دریایی و نفوذ به منطقه‌ای نظامی ممنوعه، بازداشت شده‌اند. این اقدام پس از رصد نیروهای مسلح مسئول تأمین امنیت منطقه و متوقف کردن متهمان صورت گرفت.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14585
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14585_1779366162.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️رویترز:
+
+💢ترامپ به اسرائیل قول داده است که اورانیوم غنی‌شده از ایران خارج شود و هر معامله‌ای باید شامل این بند باشد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## alonews — post 121542
+
+<div align="center">
+  <a href="telegram/content/alonews_121542_1779366163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آبفا: آب رو فعلا جیره بندی نمیکنیم
+
+#آب_پرو
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121541
+
+<div align="center">
+  <a href="telegram/content/alonews_121541_1779366163.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈بحث عضو پایداری شهرداری کابل با یک مغازه دار به علت نام گذاری مغازه اش به نام فلامینگو
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 15:43
 ---
 
