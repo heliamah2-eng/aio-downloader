@@ -7,6 +7,385 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 19:53
+---
+
+## WithYashar — post 11854
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11854_1779380611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ایران نمی‌تواند اورانیوم غنی‌شده با غنای بالا را نگه دارد. وقتی به آن برسیم، احتمالاً آن را نابود خواهیم کرد. ما آن را نمی‌خواهیم.
+@withyashar
+</div>
+
+## WithYashar — post 11853
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11853_1779380613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: ما کنترل کامل تنگه هرمز را در دست داریم.
+@withyashar
+ترامپ: مذاکرات با ایران ادامه دارد
+</div>
+
+## FoxNewsTwitter — post 342054
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342054_1779380615.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump calls on Congress to immediately pass the SAVE America Act to secure U.S. voting systems:
+
+"We have more corrupt elections than third world countries have. And we ought to get smart, pass the Save America Act. That will be a long way. You have voter ID, voter identification. The Democrats don't want to pass.”
+
+"Democrat voters do want to pass, 87%, but the Democrat politicians don't want to pass."
+</div>
+
+## FoxNewsTwitter — post 342050
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+.@Johnny_Joey raised his right hand again.
+
+More than a decade after medically retiring from the Marine Corps following combat injuries that cost him both his legs in Afghanistan, Jones reenlisted Wednesday during a ceremony at the Pentagon.
+
+Sec. Hegseth administered the oath inside the Hall of Heroes as Jones returned to the service he’s continued to champion for years.
+</div>
+
+## FoxNewsTwitter — post 342049
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342049_1779380618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump fires back at a reporter suggesting Congress may not sign off on security funding for the new White House ballroom.
+
+REPORTER: "What if Congress doesn't sign off on the security money?"
+
+TRUMP: "Then the White House won't be a very secure place."
+</div>
+
+## pm_afshaa — post 91169
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91169_1779380620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایران نمیتونه اورانیوم غنی‌شده با غنای بالا رو نگه داره. وقتی به آن برسیم، احتمالاً آن را نابود خواهیم کرد. ما آن را نمی‌خواهیم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## iaghapour — post 2623
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ نماینده مجلس: ۹۰ درصد مردم با قطعی اینترنت مشکلی ندارند!
+
+علی یزدی‌خواه، نایب‌رئیس کمیسیون فرهنگی مجلس صراحتاً اعلام کرد که اینترنت جهانی فعلاً بازگشایی نخواهد شد و مسئولان به این نتیجه رسیده‌اند که اتصال مجدد آن به صلاح نیست. او مدعی شده که با پلتفرم‌های داخلی، احتیاجات اکثریت جامعه برآورده شده است!
+
+این اظهارات نشان‌دهنده اصرار بر ادامه سیاست اینترنت طبقاتی و نادیده گرفتن نارضایتی‌های عمومی است:
+
+🔹 انکار نارضایتی‌ها: این نماینده مدعی است به عنوان نماینده مردم، مراجعات مکرری برای اعتراض به قطع اینترنت نداشته و ۹۰ درصد مردم هیچ مشکل عمده‌ای با این وضعیت ندارند!
+
+🔸 رسمیت یافتن اینترنت پرو: به گفته او، تا کنون به بالغ بر یک میلیون نفر از افرادِ واجد صلاحیت (مثل تجار و دانشگاهیان) دسترسی به «اینترنت پرو» داده شده و هر قشری که نیاز داشته باشد هم می‌تواند آن را پیگیری کند.
+
+🔹 کوچ اجباری به پلتفرم‌های داخلی: او مدعی شد که ترافیک شبکه‌ها نشان می‌دهد بیشتر کسب‌وکارها به پلتفرم‌هایی مثل روبیکا و سروش کوچ کرده‌اند و تنها یک «اقلیت ناچیز» باقی مانده‌اند که آن‌ها هم بستر مشخصی برای پیگیری دارند.
+
+در حالی که مسئولان از پایداری وضعیت فعلی و رضایت مردم سخن می‌گویند، بخش بزرگی از جامعه، کسب‌وکارها و متخصصان، اینترنت طبقاتی و محدودیت‌های فراگیر را تلاشی برای حذف کامل دسترسی آزاد به دنیای دیجیتال می‌دانند. / زومیت
+
+پ.ن: اینا نماینده کدوم مردم هستن؟ 90 درصد مشکل ندارن؟ عجب!
+حالا فارق از اینکه این ادعا از اول تا آخر دروغ هستش ولی من قبلا هم خواهش کردم اگه مجبور نیستید وارد شبکه های داخلی نشید! اگه مجبور نیستید لطفا سیم‌کارت پرو نخرید! اینا واقعا فکر میکنن مردم به ایتا و بله علاقه دارن! متوجه نیستن خیلی ها به اجبار مهاجرت کردن! در غیر اینصورت کی این اپلیکیشن ها رو به تلگرام و اینستا ترجیح میده؟
+
+🆔 @iaghapour
+</div>
+
+## IranIntlTV — post 338269
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338269" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | پنجشنبه ۳۱ اردیبهشت
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338268
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338268_1779380621.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس‌نیوز در گزارشی نوشته است که زندگی مخفیانه مجتبی خامنه‌ای در ماه‌های اخیر، شباهت‌هایی با سال‌های پایانی زندگی اسامه بن‌لادن دارد. او بدون ارتباطات مخابراتی و با اتکا به پیک‌های مورد اعتماد زندگی می‌کند و احتمال می‌رود در سایت‌های مستحکم زیرزمینی نزدیک به تاسیسات سپاه پنهان شده باشد.
+جزییات بیشتر با اردوان روزبه، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## DW_Farsi — post 124976
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124976_1779380623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 "احمد شرع در نشست گروه ۷ در فرانسه شرکت خواهد کرد"
+
+بر اساس گزارش رویترز و به نقل از سه منبع آگاه، سوریه ماه آینده به عنوان کشور مهمان در نشست گروه ۷ در فرانسه شرکت خواهد کرد و احمد شرع، رئیس جمهور موقت این کشور، نمایندگی آن را بر عهده خواهد داشت.
+
+این نخستین حضور سوریه در نشست این گروه از زمان تاسیس آن در سال ۱۹۷۵ خواهد بود.
+
+یکی از این منابع گفت دعوت‌نامه حضور الشرع در نشست ۱۵ تا ۱۷ ژوئن در اویان-له-بن در جنوب شرقی فرانسه، به طور مستقیم به یسر برنیه، وزیر دارایی سوریه، تحویل داده شده است.
+به گفته این منبع که یک مقام سوری است، انتظار می‌رود
+
+مشارکت سوریه در این گفت‌وگوها احتمالا بر نقش این کشور به عنوان یک "مرکز راهبردی بالقوه برای زنجیره‌های تامین" پس از بسته شدن تنگه هرمز متمرکز باشد.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14617
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14617_1779380624.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 العربیه مدعی دستیابی به پیش‌نویس نهایی توافق ایران و آمریکا شد
+
+💢بر اساس این گزارش، مفاد اصلی پیش‌نویس شامل موارد زیر است:
+
+▪️ آتش‌بس کامل، فوری و بدون قید و شرط در تمام جبهه‌های زمینی، دریایی و هوایی
+
+▪️ تعهد متقابل ایران و آمریکا به عدم هدف قرار دادن تأسیسات نظامی، غیرنظامی و اقتصادی یکدیگر
+
+▪️ توقف عملیات نظامی، حملات سایبری و جنگ رسانه‌ای تحریک‌آمیز از سوی دو طرف
+
+▪️ تأکید بر احترام به حاکمیت کشورها، تمامیت ارضی و عدم دخالت در امور داخلی
+
+▪️ تضمین آزادی کشتیرانی در خلیج فارس، تنگه هرمز و دریای عمان
+
+▪️ تشکیل کمیته مشترک برای نظارت بر اجرای توافق و حل اختلافات احتمالی
+
+▪️ آغاز مذاکرات درباره مسائل باقی‌مانده حداکثر ظرف ۷ روز
+
+▪️ لغو تدریجی تحریم‌های آمریکا علیه ایران در برابر پایبندی تهران به مفاد توافق
+
+▪️ تأکید دو طرف بر اینکه توافق در چارچوب قوانین بین‌المللی و منشور سازمان ملل تنظیم شده است
+
+🔻تاکنون هیچ مقام رسمی در ایران یا آمریکا صحت این پیش‌نویس را تأیید نکرده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14615
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ناو حمله آبی خاکی USS Makin Island (LHD-8) با یک اسکادران کامل از جنگنده‌های F-35B، چهارشنبه بندر نیروی دریایی سن دیگو را به مقصد منطقه هند-آرام ترک کرد.
+
+
+☆Phantom☆
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آژانس بین‌المللی انرژی: بازار نفت ممکن است تابستان بحرانی شود
+
+رئیس آژانس بین‌المللی انرژی امروز هشدار داد که همزمانی اوج تقاضای تابستانی برای سوخت، نبود صادرات تازه نفت از خاورمیانه و کاهش ذخایر نفتی می‌تواند بازار نفت را در ماه‌های مرداد و شهریور بحرانی کند.
+
+فاتح بیرول در سخنرانی خود در موسسه چتم هاوس در لندن گفت: «اگر شاهد بهبود وضعیت نباشیم، ممکن است در ژوئیه یا اوت وارد منطقه قرمز شویم.»
+
+او این اظهارات را در اشاره به بحران عرضه نفت ناشی از جنگ ایران مطرح کرد.
+
+به گفته او، حملات به زیرساخت‌های انرژی و بسته شدن عملی تنگه هرمز از سوی ایران، بیش از ۱۴ میلیون بشکه در روز از عرضه نفت خاورمیانه را حذف کرده؛ بحرانی که از آن به‌عنوان بزرگ‌ترین بحران عرضه نفت در تاریخ یاد شده است.
+
+https://bbc.in/4fwMLUO
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389891
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389891_1779380625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مرگ خامنه‌ای جوری به تخم بسیجیاست که دسته‌جمعی تو اتوبوس عروسی گرفتن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389890
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389890_1779380625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگه طرفدار فیلم ترسناکید،
+فیلم The Mummy (2026) ساختهٔ Lee Cronin رو ببینید؛
+به‌نظرم از بیشتر فیلم‌های ترسناکی که این چند سال اومدن بهتره.
+امتیاز IMDbش ۶.٣ از ١٠ و من بهش امتیاز ٧ میدم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389889
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389889_1779380626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این گربه‌هه عاشق موسیقی خیلی وایرال شده 😅
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389888
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389888_1779380628.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🌪وقتی اینترنت طوفانیه فقط کافیه بادبان ها رو بکشی
+
+
+⚫️100 هزار تومان تخفیف خرید اول 
+🎁
+
+⚫️پایین ترین قیمت گیگی 180 هزار تومان
+🌐 
+
+⚫️پورسانت %10 دائمی برای هر معرفی
+💼
+
+با بادبان، میتونی یه اتصال سریع، پایدار و امن
+همراه با پشتیبانی ۲۴ ساعته داشته باشی
+🚀
+
+
+🛒کد تخفیف: badban4k
+
+بادبان راهتو باز می‌کنه
+⛵️
+G31
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## alonews — post 121610
+
+<div align="center">
+  <a href="telegram/content/alonews_121610_1779380629.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما تنگه هرمز را از طریق محاصره‌ای که یک دیوار فولادی تشکیل می‌دهد، کاملاً کنترل می‌کنیم و ۷۵ درصد از قابلیت‌های موشکی ایران را از بین برده‌ایم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121609
+
+<div align="center">
+  <a href="telegram/content/alonews_121609_1779380629.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما تضمین خواهیم کرد که ایران به سلاح هسته‌ای دست پیدا نکند و می‌خواهیم تنگه هرمز بدون تحمیل هزینه باز شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121608
+
+<div align="center">
+  <a href="telegram/content/alonews_121608_1779380629.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: نیروی دریایی ایالات متحده کار خود را به خوبی انجام می‌دهد؛ به دلیل محاصره دریایی، هیچ کشتی‌ای به ایران وارد نمی‌شود و از آن خارج نمی‌شود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121607
+
+<div align="center">
+  <a href="telegram/content/alonews_121607_1779380630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اورانیوم بسیار غنی شده به دست می آوریم، آن را نابود می کنیم و نمی توانیم اجازه دهیم در ایران بماند
+
+
+🔴برآوردها نشان می دهد که ایران روزانه ۵۰۰ میلیون دلار ضرر می کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121606
+
+<div align="center">
+  <a href="telegram/content/alonews_121606_1779380630.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: درگیری با ایران خیلی زود پایان خواهد یافت
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121605
+
+<div align="center">
+  <a href="telegram/content/alonews_121605_1779380630.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ما کنترل کامل تنگه هرمز را در دست داریم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121604
+
+<div align="center">
+  <a href="telegram/content/alonews_121604_1779380632.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: من می‌خواهم به کوبایی‌ها بر اساس اصول انسانی کمک کنم
+
+
+🔴 در حال مذاکره درباره ایران هستیم و به هر وسیله ای که باشد به هدف خود خواهیم رسید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 19:43
 ---
 
